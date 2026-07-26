@@ -1,1 +1,1 @@
-<img width="1024" height="231" alt="image" src="https://github.com/user-attachments/assets/d076e9d6-2d39-4fe8-9ef4-8b2290778e06" />
+<img width="1182" height="78" alt="Lubie-pierogi-polecam-XD" src="https://github.com/user-attachments/assets/dc197920-a1b4-4d71-b632-ddaaca793b60" />
